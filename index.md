@@ -8,4 +8,4 @@ We love and belive this....
 
 have beep 
 
-have a good time with smile and congragulation 
+have a good time with smile and congratulation 
